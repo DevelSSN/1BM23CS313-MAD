@@ -1,1 +1,1 @@
-# Skill-It Mobile App 2025-26
+# Skill-It Mobile App for MAD Lab
